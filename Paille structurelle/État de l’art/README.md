@@ -1,1 +1,1 @@
-# État de l’art — Paille porteuse, technique Nebraska
+# État de l’art — Paille structurelle

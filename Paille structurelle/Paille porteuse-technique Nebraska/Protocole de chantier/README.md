@@ -1,1 +1,1 @@
-# Protocole de chantier — Paille porteuse, technique Nebraska
+# Paille porteuse — technique Nebraska
